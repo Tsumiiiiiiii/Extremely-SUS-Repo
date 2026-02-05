@@ -1,1 +1,1 @@
-This is the first iteration of this very sus looking repo
+What is this thing lmao, why am i even doing this!!
